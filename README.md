@@ -14,4 +14,4 @@
 
 📨 Reach me: durukahraman1234@gmail.com
 
-💬 Let's connect on [LinkedIn]([https://www.linkedin.com/in/duru-kahraman-702733228/])
+💬 Let's connect on [LinkedIn](https://www.linkedin.com/in/duru-kahraman-702733228/)
